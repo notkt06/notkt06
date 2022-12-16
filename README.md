@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notkt06
+- 👀 I’m interested in jailbreaking and hacks.
+- 🌱 I’m currently learning Java.
+- 💞️ I’m looking to collaborate on developing hacks.
+- 📫 How to reach me:kennyboom1106@outlook.com
